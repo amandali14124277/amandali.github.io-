@@ -1,2 +1,0 @@
-# amandali.github.io-
-CV
